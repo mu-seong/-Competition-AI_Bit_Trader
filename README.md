@@ -1,3 +1,3 @@
 # Competition
 
-🎉 **7th place in the final ranking (awarded)** 🎉
+🎉 **7th Place In The Final Ranking (Awarded)** 🎉
